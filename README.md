@@ -1,0 +1,2 @@
+# premium-terra-ornament-001-terracotta-architectural-tile
+Tired of juggling scattered tile samples, color swatches, and contractor quotes for your terracotta project? The Terracotta Architectural Tile Planner turns chaos into clarity with a single, customizable Notion dashboard.  This template solves the nightmare of managing multiple terracotta tile options by centralizing all your specs, budgets, and ti
